@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @nikhillpandeyy
-- 👀 I’m interested in coading and cricket
+- 👀 I’m interested in coding and cricket
 - 🌱 I’m currently learning in lpu
 - 💞️ I’m looking to collaborate on ...
 - 📫 email: nikhilpandey8061742@gmail.com, insta id: nikhillpandeyy
